@@ -1,4 +1,4 @@
-[RecycleandRecharge.com](https://amamsa0001.github.io/final-main-test1/)
+[RecycleandRecharge.com](https://amamsa0001.github.io/final-project/)
 
 [Google Slides to presentation](https://docs.google.com/presentation/d/1mLOCf3K6w1RFGgo05ov4GWfXR1FU10ZNbkB0uBbekpM/edit?usp=sharing)
 
